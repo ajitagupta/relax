@@ -1,6 +1,6 @@
 # How best to relax
 
-For most of us it's a 12-16h per day schedule. Life is hectic and fast-paced. Balance is a luxury and rather unheard of. Yet, more than ever it is of paramount importance to take breaks, put life into perspective, reevaluate decisions and plan for the future. In this post I am discussing a few ways to take a time-out and at the same time perform with zest and zeal.
+For most of us it's a 12-16h per day schedule. Life is hectic and fast-paced. Balance is a luxury and rather unheard of. Yet, more than ever it is of paramount importance to take breaks, put life into perspective, reevaluate decisions and plan for the future. In this post I am discussing a few stressbusters to take a time-out and at the same time perform with zest and zeal.
 
 ## 1) Short breaks
 
