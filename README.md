@@ -1,4 +1,4 @@
-# How best to relax
+# How Best to Relax
 
 For most of us it's a 12-16h per day schedule. Life is hectic and fast-paced. Balance is a luxury and rather unheard of. Yet, more than ever it is of paramount importance to take breaks, put life into perspective, reevaluate decisions and plan for the future. In this post I am discussing a few stressbusters to take a time-out and at the same time perform with zest and zeal.
 
@@ -21,3 +21,7 @@ Don't overcommit and underdeliver! Don't let (unrealistic) deadlines stress you 
 ## 5) Don't overplan
 
 Too much planning will lead to disappointments and wear you out. Go with the flow and use the rule of thumb to estimate and set goals daily.
+
+## 6) Intellectual Hydration
+
+A single glass of water can boost your brain power. It helps you digest information, store new memories and solve more complicated problems by keeping your brain functioning. Moreover, a cup of team quickens your short-term memory, strengthens your long-term memory and leaves you feeling enthusiastic about learning something new.
