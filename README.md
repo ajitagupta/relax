@@ -8,7 +8,7 @@ Taking short breaks helps to recharge, but similar to muscle training where your
 
 ## 2) Long breaks
 
-Work will always be around and bound to keep you busy. Thus, close your laptop after work. Take weekends off and enjoy them to the fullest!
+Work will always be around and bound to keep you busy. To unwind close your laptop after work. Take weekends off and enjoy them to the fullest!
 
 ## 3) Power Yoga
 
