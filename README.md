@@ -12,7 +12,7 @@ Work will always be around and bound to keep you busy. Thus, close your laptop a
 
 ## 3) Power Yoga
 
-Power Yoga is more intense than regular yoga and a great complimentary exercise to running, weight training or team sports. Also, it involves many variations of stretching and toning to keep your body in shape and healthy. Mindful silence also helps to relax and recollect your thoughts.
+Power Yoga is more intense than regular yoga and a great complimentary exercise to running, weight training or team sports. Also, it involves many variations of stretching and toning to keep your body in shape and healthy. Additionally, mindful silence helps to relax and recollect your thoughts.
 
 ## 4) Saying No
 
