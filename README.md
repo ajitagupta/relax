@@ -14,7 +14,7 @@ Work will always be around and bound to keep you busy. Thus, close your laptop a
 
 Power Yoga is more intense than regular yoga and a great complimentary exercise to running, weight training or team sports. Also, it involves many variations of stretching and toning to keep your body in shape, healthy and good-looking.
 
-## 4) Saying NO
+## 4) Saying No
 
 Don't overcommit and underdeliver! Don't let (unrealistic) deadlines stress you out! Just say no and move on.
 
