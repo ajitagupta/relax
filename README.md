@@ -24,4 +24,4 @@ Too much planning will lead to disappointments and wear you out. It may also lea
 
 ## 6) Nourish your brain
 
-A single glass of water can boost your brain power. It helps you digest information, store new memories and solve more complicated problems by keeping your brain functioning. Moreover, a cup of team quickens your short-term memory, strengthens your long-term memory and leaves you feeling enthusiastic about learning something new.
+A single glass of water can boost your brain power. It helps you digest information, store new memories and solve more complicated problems by keeping your brain functioning. Moreover, a cup of tea quickens your short-term memory, strengthens your long-term memory and leaves you feeling enthusiastic about learning something new.
