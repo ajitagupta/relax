@@ -16,7 +16,7 @@ Power Yoga is more intense than regular yoga and a great complimentary exercise 
 
 ## 4) Saying No
 
-Don't overcommit and underdeliver! Don't let (unrealistic) deadlines stress you out! Just say no and move on.
+Don't overcommit and underdeliver! Don't let (unrealistic) deadlines stress you out! Stress breeds anxiety, self-doubt and low self-esteem. Just say no and move on.
 
 ## 5) Don't overplan
 
