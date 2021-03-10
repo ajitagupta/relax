@@ -22,6 +22,6 @@ Don't overcommit and underdeliver! Don't let (unrealistic) deadlines stress you 
 
 Too much planning will lead to disappointments and wear you out. Go with the flow and use the rule of thumb to estimate and set goals daily.
 
-## 6) Intellectual Hydration
+## 6) Nourish your brain
 
 A single glass of water can boost your brain power. It helps you digest information, store new memories and solve more complicated problems by keeping your brain functioning. Moreover, a cup of team quickens your short-term memory, strengthens your long-term memory and leaves you feeling enthusiastic about learning something new.
