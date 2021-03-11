@@ -4,11 +4,11 @@ For most of us it's a 9-12h per day schedule. Life is hectic and fast-paced. Bal
 
 ## 1) Short breaks
 
-Taking short breaks helps to recharge, but similar to muscle training where your body doesn't completely disconnect from a small pause after each set of repetitions, you get ready for the next round. Eat little meals in between to avoid starving.
+Work will always be around and bound to keep you busy. Momentum is important. Your time is valuable. When you feel like you can't work anymore it's time to invest into recovery. Taking short breaks helps to recharge, but similar to muscle training where your body doesn't completely disconnect from a small pause after each set of repetitions, you get ready and excited for the next round. Eat little meals in between to avoid starving.
 
 ## 2) Long breaks
 
-Work will always be around and bound to keep you busy. To unwind close your laptop after work. Take weekends off and enjoy them to the fullest!
+You don't have to work constantly to achieve your dreams. Even though your intentions are good this bad habit can leave you so exhausted that your work begins to suffer. To unwind close your laptop after work. Take weekends off and enjoy them to the fullest!
 
 ## 3) Power Yoga
 
