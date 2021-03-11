@@ -8,7 +8,7 @@ Work will always be around and bound to keep you busy. Momentum is important. Yo
 
 ## 2) Long breaks
 
-You don't have to work constantly to achieve your dreams. Even though your intentions are good this bad habit can leave you so exhausted that your work begins to suffer. To unwind close your laptop after work. Take weekends off and enjoy them to the fullest!
+You don't have to work constantly to achieve your dreams. Even though your intentions are good this bad habit can leave you so exhausted that your work begins to suffer. To unwind close your laptop after work. Take weekends off and enjoy them to the fullest! Use your breaks to explore a new hobby, spend time with family and reconnect with old friends.
 
 ## 3) Power Yoga
 
