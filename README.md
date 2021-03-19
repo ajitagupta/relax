@@ -20,7 +20,7 @@ Don't overcommit and underdeliver! Don't let (unrealistic) deadlines stress you 
 
 ## 5) Don't overplan
 
-Too much planning will lead to disappointments and wear you out. It may also lead to outdated goals. Go with the flow and use the rule of thumb to estimate and set goals daily. Further, too much stability will suck the excitement right out of your life. That's why you need spontaneity to get inspired and try new things. A single spontaneous adventure can nurture the more creative and passionate sides of your personality.
+Too much planning will lead to disappointments and wear you out. It may also lead to outdated goals. Further, too much stability will suck the excitement right out of your life. And you are never going to start in the firse place! That's why you need spontaneity to get inspired and try new things. A single spontaneous adventure can nurture the more creative and passionate sides of your personality. Sometimes, a new opportunity might present itself. As your grow towards your goals they will get more concrete. You will get ann understanding of what you like and what you don't.
 
 ## 6) Nourish your brain
 
