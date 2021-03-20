@@ -20,7 +20,7 @@ People prefer to spend their time with friends who are calm, relaxed and stress-
 
 ## 5) Don't overplan
 
-Too much planning will lead to disappointments and wear you out. It may also lead to outdated goals. Further, too much stability will suck the excitement right out of your life. And you are never going to start in the first place! That's why you need spontaneity to get inspired and try new things. A single spontaneous adventure can nurture the more creative and passionate sides of your personality. Sometimes, a new opportunity might present itself. As your grow towards your goals they will get more concrete. You will get an understanding of what you like and what you don't.
+Too much planning will lead to disappointments and wear you out. It may also lead to outdated goals. Further, too much stability will suck the excitement right out of your life. And you are never going to start in the first place! That's why you need spontaneity to get inspired and try new things. A single spontaneous adventure can nurture the more creative and passionate sides of your personality. Sometimes, a new opportunity might present itself. As you grow towards your goals they will get more concrete. You will get an understanding of what you like and what you don't.
 
 ## 6) Nourish your brain
 
