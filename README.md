@@ -16,7 +16,7 @@ Power Yoga is more intense than regular yoga and a great complimentary exercise 
 
 ## 4) Saying No
 
-People prefer to spend their time with friends who are calm, relaxed and stress-free. Thus, don't overcommit and underdeliver! Don't let (unrealistic) deadlines stress you out or make your nervous! Stress breeds anxiety, self-doubt and low self-esteem. Just say no and move on.
+People prefer to spend their time with friends who are calm, relaxed and stress-free. Thus, don't overcommit and underdeliver! Don't let (unrealistic) deadlines stress you out or make you nervous! Stress breeds anxiety, self-doubt and low self-esteem. Just say no and move on.
 
 ## 5) Don't overplan
 
